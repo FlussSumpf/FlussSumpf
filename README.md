@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @FlussSumpf
+- 👀 I’m interested in Tech and Cars
+- 🌱 I’m currently learning Python
+- 📫 How to reach me: YOU JUST DON'T! LOL
